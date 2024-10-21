@@ -1,0 +1,1 @@
+# A jel može možda brže?
